@@ -1,4 +1,4 @@
-
+life together rp instant Scripts is the best life together rp Script, featuring teleport and god mode. Safe and powerful for all your needs.
 
 
 
